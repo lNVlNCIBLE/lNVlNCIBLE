@@ -1,6 +1,8 @@
-<p align="center"> <img width="410" src="https://github.com/user-attachments/assets/ceabea27-d17b-49e8-a186-ca310b6ab00a"/>
+<p align="center"> <img width="410" src="https://github.com/user-attachments/assets/e5bf02ab-9cb4-4d93-993e-771cadbafc33"/>
 
 <div align="center"> 
   
-[RENTRY](https://rentry.co/obitouchiha)  ㅤ![e6c0eec4](https://github.com/user-attachments/assets/32b62090-2cda-498c-8e03-c7cb6680f692)
+[RENTRY](https://rentry.co/obitouchiha)  ㅤ♡
  ㅤ[ATA](https://obito.atabook.org/)
+
+
